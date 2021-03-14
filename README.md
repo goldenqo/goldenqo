@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Andrej
+- 👋 Hi, I’m Andrew.
 - 👀 I’m interested in translation Websites, Whitepapers or Any Project from English to Slovak or Czech Language.
 - 🌱 I’m currently learning about blockchain cryptocurrencies and lot more...
 - 💞️ I’m looking to collaborate on translation Projects, Websites, Exchanches, Whitepapers... Anything will be needed.
