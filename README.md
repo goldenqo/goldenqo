@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on translation Projects, Websites, Exchanches, Whitepapers... Anything will be needed.
 - 📫 How to reach me?    
 - email:  adko.turac@gmail.com 
-- twitter:  @goldenqo
+- twitter:  @An_Drejko
 - instagram:  an_drejko
 
 <!---
